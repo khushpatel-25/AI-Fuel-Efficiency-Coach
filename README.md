@@ -1,1 +1,1 @@
-Fuel EFficiency Coach
+Fuel Efficiency Coach
